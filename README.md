@@ -1,6 +1,3 @@
-![image_pixel_paysage](https://github.com/user-attachments/assets/aea2d0cf-927c-400b-8095-0bece5bb0b16)
-
-
 **Holà, Helloo c'est moi !**
 - ✨ J'aime ...
   - Data Journalism & knowledge graphs
